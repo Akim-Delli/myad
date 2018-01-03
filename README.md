@@ -1,3 +1,3 @@
-# My Ad Campaign
+# bCause
 
-your best own advocate
+your own best advocate
